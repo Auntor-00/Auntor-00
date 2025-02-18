@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Auntor-00
 - 👀 I’m interested in - Tech
 - 🌱 I’m currently learning - Basic coding
-- 📫 How to reach me - https://www.facebook.com/jamshedauntor
 - 😄 Pronouns: He/Him 
 - ⚡ Fun fact: I'm too much lazy
 
